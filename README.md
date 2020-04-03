@@ -1,0 +1,2 @@
+# jui
+I am a passionate and hard working freelancer. 100% Client's satisfaction is my main Goal. i'm a very Professional virtual Assistant and have valuable experience in this field. I am highly professional with extensive skill in any Data Entry, Copy Past, Data Analysis, Data Collection, Data Mining, Data Scraping, Web Research, Lead Generation, B2B Lead Generation, Virtual assistant and admin support work.
